@@ -1,1 +1,0 @@
-# arya_git_session
